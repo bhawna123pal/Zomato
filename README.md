@@ -14,4 +14,4 @@ Features :
 
 5. It will be beneficial for Zomato that why these restaurants are rated so low and needs improvement etc.
 
-please rate my work.
+
